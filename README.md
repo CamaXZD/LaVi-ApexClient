@@ -1,2 +1,15 @@
-# LaVi-ApexClient
-LaVi Apex Legends *S19* PrivateHack AimBOT + Wallhack ESP - Box, Line, Distance, HealthBar &amp; much more
+## ⚠️ 〢 𝗗𝗜𝗦𝗖𝗟𝗔𝗜𝗠𝗘𝗥
+
+𝗧𝗵𝗶𝘀 𝗽𝗿𝗼𝗷𝗲𝗰𝘁 𝘄𝗮𝘀 𝗺𝗮𝗱𝗲 𝗳𝗼𝗿 𝗲𝗱𝘂𝗰𝗮𝘁𝗶𝗼𝗻𝗮𝗹 𝗽𝘂𝗿𝗽𝗼𝘀𝗲𝘀 𝗮𝗻𝗱 𝗽𝗲𝗿𝘀𝗼𝗻𝗮𝗹 𝘂𝘀𝗲. 𝗬𝗼𝘂 𝗵𝗼𝗹𝗱 𝗿𝗲𝘀𝗽𝗼𝗻𝘀𝗶𝗯𝗶𝗹𝗶𝘁𝘆, 𝗹𝗶𝗮𝗯𝗶𝗹𝗶𝘁𝘆 𝗮𝗻𝗱 𝗮𝗰𝗰𝗼𝘂𝗻𝘁𝗮𝗯𝗶𝗹𝗶𝘁𝘆 𝗳𝗼𝗿 𝗮𝗻𝘆 𝗰𝗼𝗻𝘀𝗲𝗾𝘂𝗲𝗻𝗰𝗲𝘀 𝗰𝗮𝘂𝘀𝗲𝗱 𝗯𝘆 𝘆𝗼𝘂𝗿 𝗮𝗰𝘁𝗶𝗼𝗻𝘀.
+
+## 💡 〢 𝗢𝘃𝗲𝗿𝘃𝗶𝗲𝘄
+
+![adz](https://i.imgur.com/TX3FWgy.png)
+
+![adz](https://i.imgur.com/lFI7vY4.png)
+
+![adz](https://i.imgur.com/MNRWwHT.png)
+
+## [𝗗𝗘𝗟] 𝗛𝗼𝘁𝗞𝗲𝘆 - 𝗢𝗽𝗲𝗻𝘀 𝗨𝗜
+
+# 𝗟𝗶𝗸𝗲 𝘁𝗵𝗶𝘀 𝗽𝗿𝗼𝗷𝗲𝗰𝘁? 𝗙𝗲𝗲𝗹 𝗳𝗿𝗲𝗲 𝘁𝗼 𝗹𝗲𝗮𝘃𝗲 𝗮 𝘀𝘁𝗮𝗿 🌟
